@@ -1,2 +1,2 @@
 # DevEvelynn
- Hi Im Evelynn \n Im a Trans Gal
+ Hi Im Evelynn & I am a Trans Gal
